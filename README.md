@@ -1,1 +1,0 @@
-# recanto-hotel-page
